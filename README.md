@@ -1,2 +1,2 @@
 # supersonics-project
-95/96 supersonics fanpage
+1995/1996 supersonics fanpage
